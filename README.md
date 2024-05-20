@@ -1,3 +1,5 @@
 # janev4
 
-#1 adsdsa
+probably the only bridge duels script
+
+https://www.roblox.com/games/11630038968/Bridge-Duel
